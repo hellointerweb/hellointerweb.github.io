@@ -1,8 +1,6 @@
 ## Hello Interweb
 
-You can use the [editor on GitHub](https://github.com/hellointerweb/hellointerweb.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ### Markdown
 
