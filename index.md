@@ -4,6 +4,10 @@ This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth tak
 
 ---
 
+### 11/11/2021
+
+Alcohol is great in the moment- not the next morning. Coffee, and greasy food. 
+
 ### 11/10/2021
 
 The problem, when dealing with someone like me is that I have a love for absoluteness. Ever since I was a kid, the idea that things could live and die absolutely drove me crazy. To the point where I started believing that life itself was some sort of sadistic joke forced upon those who were brought into this life. I couldn't fathom the possiblity that this 'world' and I say that in loose terms, would inflict the kind of existiential angst on all those who are blessed with a conscience. Couple the human condition with the horrible aspects of the modern world, and you recieve something that feels a bit like hell. The average human is almost forced into slavery by something along the lines of what I like to call 'indentured capitalism'. You don/'t have a damn choice- you need to work, or you die. 
