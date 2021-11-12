@@ -4,6 +4,12 @@ This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth tak
 
 ---
 
+### 11/12/2021
+
+**What is a day that you wish you could relive?**
+
+A day that I wish I could relive. What an interesting, impossible question. In the wide span that is my life (so-far) there has been thousands and thousands of days, all merged into one existential blur that is time. The greedy part of me wants to answer this question by stating the words, "Simple. I would want to relive every day. Life and my person is something that I care about more than almost anything in this world." Radical honesty. That is the key here- there must be a day that I wish I could relive, one that is apart from the rest. My memory isn't that great, if I'm being honest. To answer this question I'm going to take a rather empathetic and caring stance- I would like to relive a day when my father was happy. It is so rare to see him smiling, and carefree. The troubles of life have burdened him greatly, like the modern Sisyphus in the fields of Asphodel. I want him to be loved, to feel loved, and to love back. I want him to finally be able to rest, and enjoy himself. This is why my own shortcomings hurt me so badly- because I know they affect my loved ones greatly. 
+
 ### 11/11/2021
 
 Alcohol is great in the moment- not the next morning. Coffee, and greasy food. 
