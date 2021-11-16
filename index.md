@@ -4,6 +4,12 @@ This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth tak
 
 ---
 
+### 11/16/2021
+
+I'm trying to use this page as an excercise for (excuse the word) penetrating self examination. How am I to succeed in this world if I do not first understand every devious little thing about myself? I am the one person I will always have to depend on, I should be able to trust myself without any misgivings. 
+
+---
+
 ### 11/12/2021
 
 **What is a day that you wish you could relive?**
