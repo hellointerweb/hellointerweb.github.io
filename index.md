@@ -4,6 +4,12 @@ This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth tak
 
 ---
 
+### 11/21/2021
+
+I need to do laundry. I know that my depression, or anxiety or anxiety or whatever foul beast that resides in my head presents itself in the form of me washing and taking care of my clothes and appearance. It feels almost neurotic to me sometimes. I wash my clothes, they end up on the floor, I separate them into piles, and then I just don't put them away. I get distracted, I say I will do it later, someone walks into my room, whatever the distraction may be- I just don't do it. 
+
+---
+
 ### 11/16/2021
 
 I'm trying to use this page as an excercise for (excuse the word) penetrating self examination. How am I to succeed in this world if I do not first understand every devious little thing about myself? I am the one person I will always have to depend on, I should be able to trust myself without any misgivings. 
