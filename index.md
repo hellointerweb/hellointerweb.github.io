@@ -3,7 +3,11 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 12/20/2021
 
+Hello there folks. I'd like to imagine that all of my fans were losing their shit over their beloved blog writer not posting for a month. Haha, it would be nice to have a following, but I am merely a vessel that very little care about. Which is fine by me- the smaller the circle the less loss. 
+
+A month it has been since my last spewing of words onto the immortal page. Has my life gotten better or worse, you ask? That remains to be seen. I am making more money, and doing more, which I think deserves a congratulations in of itself. But more work remains to be done. I need to work on myself- on the small things to improve my quality of life. 
 ### 11/21/2021
 
 I need to do laundry. I know that my depression, or anxiety or anxiety or whatever foul beast that resides in my head presents itself in the form of me washing and taking care of my clothes and appearance. It feels almost neurotic to me sometimes. I wash my clothes, they end up on the floor, I separate them into piles, and then I just don't put them away. I get distracted, I say I will do it later, someone walks into my room, whatever the distraction may be- I just don't do it. 
