@@ -3,6 +3,17 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 12/22/2021
+"What am I doing?"
+
+These words have been pounding in my head lately, and when I say pounding, I mean pounding quite similarly to a sledgehammer slamming into old concrete. Within the last 24 hours I have started talking to an old flame again. My oldest flame, and most passionate. I'm not really sure what I'm doing or what my goal is, but I do know that I missed talking to her, and that it was almost therapeutic pouring our hearts out to each for one more time. There is definitely something still there for us, lurking just beneath whatever facade either of us has put up for the day. 
+
+Quick break for what I want to do today: 
+- Learn about making infographics 
+- Do some crypto research for the RBC 
+- Clean house/room
+- Talk to G more 
+
 ### 12/20/2021
 
 Hello there folks. I'd like to imagine that all of my fans were losing their shit over their beloved blog writer not posting for a month. Haha, it would be nice to have a following, but I am merely a vessel that very little care about. Which is fine by me- the smaller the circle the less loss. 
