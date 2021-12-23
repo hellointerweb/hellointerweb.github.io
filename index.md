@@ -13,7 +13,9 @@ Quick break for what I want to do today:
 - Do some crypto research for the RBC 
 - Clean house/room
 - Talk to G more 
+- research creating NFTs
 
+Update: Just realized I have yet to eat today 
 ### 12/20/2021
 
 Hello there folks. I'd like to imagine that all of my fans were losing their shit over their beloved blog writer not posting for a month. Haha, it would be nice to have a following, but I am merely a vessel that very little care about. Which is fine by me- the smaller the circle the less loss. 
