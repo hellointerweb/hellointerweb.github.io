@@ -3,6 +3,10 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 12/24/2021 
+"Why are ecosystems/platforms like stake and roobet important to the overall success of cryptocurrency?"
+
+The first question to answer is really more preliminary tham the question posed in the title. The problem in today's day and age, the common man or women simply do not understand the importance of fiat currency more commonly known as a "cryptocurrency". First the average joe must understand and support the argument for the necessity of a form of payment that functions without the crutch of a central monetary authority, like a bank.
 ### 12/22/2021
 "What am I doing?"
 
