@@ -3,10 +3,13 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 1/2/2022
+Well, it is a new year, and that is a fact that cannot be argued. In the spirit of of succumbing to the positive voice of change, I want to try to be more mindful and attentive within 2022. I don't think it is a particularly hard concept: "Do what you say you are going to do". That is what I think this means at it's core. I want to be less distracted, and more focused, streamlined if you will. I have a tremendous amount of brainpower at my disposal and I think I am a force to be reckoned with at times.. 
 ### 12/24/2021 
 "Why are ecosystems/platforms like stake and roobet important to the overall success of cryptocurrency?"
 
 The first question to answer is really more preliminary tham the question posed in the title. The problem in today's day and age, the common man or women simply do not understand the importance of fiat currency more commonly known as a "cryptocurrency". First the average joe must understand and support the argument for the necessity of a form of payment that functions without the crutch of a central monetary authority, like a bank.
+
 ### 12/22/2021
 "What am I doing?"
 
@@ -20,11 +23,13 @@ Quick break for what I want to do today:
 - research creating NFTs
 
 Update: Just realized I have yet to eat today 
+
 ### 12/20/2021
 
 Hello there folks. I'd like to imagine that all of my fans were losing their shit over their beloved blog writer not posting for a month. Haha, it would be nice to have a following, but I am merely a vessel that very little care about. Which is fine by me- the smaller the circle the less loss. 
 
 A month it has been since my last spewing of words onto the immortal page. Has my life gotten better or worse, you ask? That remains to be seen. I am making more money, and doing more, which I think deserves a congratulations in of itself. But more work remains to be done. I need to work on myself- on the small things to improve my quality of life. I still feel like as a person I leave a lot to be desired. I am lazy, I know that is a certainy. Similarly, I get distracted very easily. Recently an idea called "monotasking" has been presented to me. I know I'm a list guy, but lists even can draw on and lose their effectivity. Make short lists with the purpose of only focusing on those specific items for the day. Repeat.  
+
 ### 11/21/2021
 
 I need to do laundry. I know that my depression, or anxiety or anxiety or whatever foul beast that resides in my head presents itself in the form of me washing and taking care of my clothes and appearance. It feels almost neurotic to me sometimes. I wash my clothes, they end up on the floor, I separate them into piles, and then I just don't put them away. I get distracted, I say I will do it later, someone walks into my room, whatever the distraction may be- I just don't do it. 
