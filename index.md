@@ -14,6 +14,9 @@ Today I woke up feeling hungover, and actually a bit anxious. It wasn't the soul
 6. Text/Email Referrees back for my upcoming games 
 
 I really am trying to be therapeutic in my writing here. 
+
+I am now at work, clocked in not working. I also need to change the typo on Mike Robisons Range 5 Page. I'm doing better! Did all of the stuff on my list, although its hard to not feel like I'm missing something with how jumbled my brain gets sometimes. 
+
 ### 1/2/2022
 Well, it is a new year, and that is a fact that cannot be argued. In the spirit of of succumbing to the positive voice of change, I want to try to be more mindful and attentive within 2022. I don't think it is a particularly hard concept: "Do what you say you are going to do". That is what I think this means at it's core. I want to be less distracted, and more focused, streamlined if you will. I have a tremendous amount of brainpower at my disposal and I think I am a force to be reckoned with at times.. 
 ### 12/24/2021 
