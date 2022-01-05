@@ -3,6 +3,17 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 1/5/2022
+Today I woke up feeling hungover, and actually a bit anxious. It wasn't the soul crushing, pit of existential despair but rather a more mellow nervous anticipation. Perhaps it was cauwed by the way I showed Chris what my love life was looking like. I feel a bit like an asshole, a bit like I'm acting irrationally. Maybe I am scared of the future and of what is to come. That seems like a rational response to radical change. Lets focus up now. Here is whats I need to do today before I leave for work. 
+
+1. Respond to Dannys Email 
+2. Schedule STW post for the day 
+3. Start a load for laundry 
+4. Shower 
+5. Pushups/Stretch
+6. Text/Email Referrees back for my upcoming games 
+
+I really am trying to be therapeutic in my writing here. 
 ### 1/2/2022
 Well, it is a new year, and that is a fact that cannot be argued. In the spirit of of succumbing to the positive voice of change, I want to try to be more mindful and attentive within 2022. I don't think it is a particularly hard concept: "Do what you say you are going to do". That is what I think this means at it's core. I want to be less distracted, and more focused, streamlined if you will. I have a tremendous amount of brainpower at my disposal and I think I am a force to be reckoned with at times.. 
 ### 12/24/2021 
