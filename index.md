@@ -3,6 +3,11 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 1/11/2022
+**How different were you five years ago?** 
+
+Fifteen. That was my ripe old age 5 years ago today. I was on the brink of turning sixteen, and there was probably nothing on my mind except getting my license and using whatever bit of freedom I had on the weekends to the max. My lack of memory is actually kind of alarming. I'd like to think I was driven and smart- but I actually think this is the age where I started putting up a front. I wanted to be considered smart because regardless of if you are actually better off cognitively or not, it gives you a mental edge in high school. I learned this fast, and made up for my lack of motivation to actually do anything progressive by becoming a master procrastinator and reveling in my quick wit. My personal life was very different back then too. I was much closer with my good friends, some of whom have forsaken me now, as they are not understanding of the terrible mental state I put myself in trying to please everybody. That feeleing is kind of insatiable- I really, really do not want anyone to think of me negatively. I think in the long run that is actually a huge personal shortcoming. Afterall, how am I to find my own happiness and way through life if I'm constantly worrried about others feelings? 
+
 ### 1/5/2022
 Today I woke up feeling hungover, and actually a bit anxious. It wasn't the soul crushing, pit of existential despair but rather a more mellow nervous anticipation. Perhaps it was cauwed by the way I showed Chris what my love life was looking like. I feel a bit like an asshole, a bit like I'm acting irrationally. Maybe I am scared of the future and of what is to come. That seems like a rational response to radical change. Lets focus up now. Here is whats I need to do today before I leave for work. 
 
