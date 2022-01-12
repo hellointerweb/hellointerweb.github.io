@@ -4,6 +4,16 @@ This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth tak
 
 ---
 ### 1/11/2022
+
+Reread what was written earlier. Sometimes words are like garbage, and they pour out of you like trash overflowing from a garbage bin.
+Lets make a list of new years resolutions (instead of napping, good shit):
+
+1. Be more mindful
+
+This one is improtant because it means setting more alarms, being on time, keeping diligence, and cleanliness. 
+
+2. 
+### 1/11/2022
 **How different were you five years ago?** 
 
 Fifteen. That was my ripe old age 5 years ago today. I was on the brink of turning sixteen, and there was probably nothing on my mind except getting my license and using whatever bit of freedom I had on the weekends to the max. My lack of memory is actually kind of alarming. I'd like to think I was driven and smart- but I actually think this is the age where I started putting up a front. I wanted to be considered smart because regardless of if you are actually better off cognitively or not, it gives you a mental edge in high school. I learned this fast, and made up for my lack of motivation to actually do anything progressive by becoming a master procrastinator and reveling in my quick wit. My personal life was very different back then too. I was much closer with my good friends, some of whom have forsaken me now, as they are not understanding of the terrible mental state I put myself in trying to please everybody. That feeleing is kind of insatiable- I really, really do not want anyone to think of me negatively. I think in the long run that is actually a huge personal shortcoming. Afterall, how am I to find my own happiness and way through life if I'm constantly worrried about others feelings? The problem is, I don't think I come off as worried about other's happiness and well-being. I've heard from multiple sources that I come off as intimidating, and perhaps even arrogant. I'm not sure I'd want to change that about myself, especially because someone that comes off as intimidating has an advantage as soon as they walk in the room. I'd rather be on offense than defense, and I'm sure that Caesar would agree with me. 
