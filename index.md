@@ -3,6 +3,18 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 1/18/2022
+
+Today my head feels a bit fogged up- I know there are things I have to do, its been hard trying to figure out what those things are. I had a good start to my day so I'm feeling pretty good, and I want to keep this good mojo flowing. 
+
+I know I need to:
+1. Post on MSEA, but that requires me to have a copy of the MSEA logo 
+2. Get into STW and fix the stripe problem 
+3. Show Mike how to add his own stuff to his page 
+4. HDMS punch requests
+
+
+
 ### 1/11/2022
 
 Reread what was written earlier. Sometimes words are like garbage, and they pour out of you like trash overflowing from a garbage bin.
