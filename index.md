@@ -12,7 +12,11 @@ Lets make a list of new years resolutions (instead of napping, good shit):
 
 This one is improtant because it means setting more alarms, being on time, keeping diligence, and cleanliness. 
 
-2. 
+2. Be on your phone less
+
+Even marginally, is good. Lets cut to below 5hr and then try to get to 4hr. 3 is after. 
+
+3. 
 ### 1/11/2022
 **How different were you five years ago?** 
 
