@@ -3,6 +3,15 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 1/19/2022 After a 1/5 of whiskey, some weed, and two shots of Nyquil
+
+You know exactly what you were told tonight. Why are you suprised? Thoughts like this have been dancing around in your head for a while- maybe that is why it hurts so badly right now. Don't dance around the subject- do you believe her? A guy who trusts doesn't try and convince himself of the truth. Is it the who they are? Is it the way she said it? Why did she say "oh god" and "please don't hate me?". Is it because I am lesser than? Or somehow don't compare? Why does this have such a grip on me???? LET GO!! 
+
+Take caution young man.
+
+Headache at 2 fucking AM???
+
+I know I love her a lot, and I wish I could change a lot of things. I want her to know that, and I want to get rid of the way I feel right now. 
 ### 1/18/2022
 
 Today my head feels a bit fogged up- I know there are things I have to do, its been hard trying to figure out what those things are. I had a good start to my day so I'm feeling pretty good, and I want to keep this good mojo flowing. 
