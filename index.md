@@ -3,6 +3,10 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 1/19/2022 later 
+
+Mentally not doing so hot, trying desperately to factor in routine, and positive work to feel better about myself.
+
 ### 1/19/2022 After a 1/5 of whiskey, some weed, and two shots of Nyquil
 
 You know exactly what you were told tonight. Why are you suprised? Thoughts like this have been dancing around in your head for a while- maybe that is why it hurts so badly right now. Don't dance around the subject- do you believe her? A guy who trusts doesn't try and convince himself of the truth. Is it the who they are? Is it the way she said it? Why did she say "oh god" and "please don't hate me?". Is it because I am lesser than? Or somehow don't compare? Why does this have such a grip on me???? LET GO!! 
