@@ -3,6 +3,14 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 2/2/22 Raise Your Game
+Self Test:
+1. What do you do really well?
+A: I think I am really good at picking up concepts. A quick learner. Quick wit. Always have a smile, people seem to like me. 
+2. What do you need to improve on?
+A: I need to improve my diligence and ability to focus. 
+3. What is your plan for addressing No. 2?
+A: I need to get adequate sleep and eat on schedule. Get rid of distractions and keep my envirornment clean. Mind and Health are first. In bed by 11 for a 8:30-9 wakeup. 
 ### 1/19/2022 later 
 
 Mentally not doing so hot, trying desperately to factor in routine, and positive work to feel better about myself.
