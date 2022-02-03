@@ -3,6 +3,20 @@
 This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth take of the world from a young man living in Nevada. All you need to know is that I am a college student abhored by the state of the world that we live in. 
 
 ---
+### 2/3/22 Raise Your Game
+Self Test asked to Dad:
+Do I communicate well? A: 6
+Courageous: 5
+Disciplined: 4
+Focused: 5
+Generous: 8
+Initiative: 6
+Sound judgement: 6
+Listen: 6
+Optimistic: 7
+Resolver: 6
+Responsible: 6
+Secure: 6
 ### 2/2/22 Raise Your Game
 Self Test:
 1. What do you do really well?
@@ -10,7 +24,7 @@ A: I think I am really good at picking up concepts. A quick learner. Quick wit. 
 2. What do you need to improve on?
 A: I need to improve my diligence and ability to focus. 
 3. What is your plan for addressing No. 2?
-A: I need to get adequate sleep and eat on schedule. Get rid of distractions and keep my envirornment clean. Mind and Health are first. In bed by 11 for a 8:30-9 wakeup. 
+A: I need to get adequate sleep and eat on schedule. Get rid of distractions and keep my envirornment clean. Mind and Health are first. In bed by 11 for a 8:30-9 wakeup. Weekdays. 
 ### 1/19/2022 later 
 
 Mentally not doing so hot, trying desperately to factor in routine, and positive work to feel better about myself.
