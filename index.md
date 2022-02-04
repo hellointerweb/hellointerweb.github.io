@@ -5,18 +5,18 @@ This a 100 percent unredacted, non-compromised, unbiased, extremely in-depth tak
 ---
 ### 2/3/22 Raise Your Game
 Self Test asked to Dad:
-Do I communicate well? A: 6
-Courageous: 5
-Disciplined: 4
-Focused: 5
-Generous: 8
-Initiative: 6
-Sound judgement: 6
-Listen: 6
-Optimistic: 7
-Resolver: 6
-Responsible: 6
-Secure: 6
+Do I communicate well? A: 6 | 8
+Courageous: 5 | 6
+Disciplined: 4 | 5
+Focused: 5 | 4
+Generous: 8 | 8
+Initiative: 6 | 9
+Sound judgement: 6 | 6
+Listen: 6 | 9
+Optimistic: 7 | 4
+Resolver: 6 | 6
+Responsible: 6 | 7
+Secure: 6 | 6
 ### 2/2/22 Raise Your Game
 Self Test:
 1. What do you do really well?
